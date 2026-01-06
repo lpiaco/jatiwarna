@@ -1,2 +1,2 @@
-# LPIA Jatiwaringin
-LPIA Jatiwaringin
+# LPIA Jatiwarna
+LPIA Jatiwarna
